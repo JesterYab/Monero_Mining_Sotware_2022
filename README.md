@@ -1,0 +1,1 @@
+# Monero_Mining_Sotware_2022
